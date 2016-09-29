@@ -1,2 +1,2 @@
-# BeStrong
-read everything in it will make you STRONG
+# Living without an aim is like sailing without a compass. 
+
